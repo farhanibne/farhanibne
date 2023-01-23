@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👽 I’m looking for someone who can think like me 
-- 🥅 2022 Goals: Learn more about web3 and blockchain
+- 🥅 2023 Goals: Launch very first own AI Model
 - ⚡ Fun fact: I love to write code 
 - 😊 Check out the NFT collection I created: [Cryptostickies](https://opensea.io/collection/cryptostickies-100)
 
